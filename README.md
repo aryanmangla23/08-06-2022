@@ -11,3 +11,5 @@ Worked + Kdrama
 6:03 pm: Q4 - Who do I need to still forgive and who am I still angry at? Midnight answers
 
 What is important to me now that wasn't important to me before?
+
+10:35: Dang that was fun af. made a lil kid rage quit 🥱. boosted my ego
